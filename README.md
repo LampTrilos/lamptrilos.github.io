@@ -1,1 +1,1 @@
-# lamptrilos.github.io
+google.com, pub-8375324487771129, DIRECT, f08c47fec0942fa0
